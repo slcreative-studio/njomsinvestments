@@ -1,0 +1,2 @@
+# njomsinvestments
+Njoms Investments
